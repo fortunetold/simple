@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Menemukan Nilai Sesungguhnya: Mengapa Kita Perlu Berhenti Mengejar "Ambil Itu, Ambil" "
+title: "Menemukan Nilai Sesungguhnya: Mengapa Kita Perlu Berhenti Mengejar Ambil Itu, Ambil" 
 ---
 
 Kita semua pernah mengalaminya. Gelombang keinginan yang kuat, dorongan yang sulit ditolak, bisikan halus yang berkata, "Ambil itu, ambil." Entah itu barang baru yang berkilauan, pujian yang menggoda, atau sekadar peluang yang tampak menguntungkan, naluri kita sering kali tertuju pada apa yang bisa kita **ambil itu, ambil**. Namun, seberapa sering kita benar-benar berhenti sejenak untuk merenungkan, apa yang sebenarnya kita **ambil itu, ambil**? Apakah itu benar-benar membawa kebahagiaan yang tahan lama, atau sekadar kepuasan sesaat yang segera memudar, meninggalkan kekosongan yang sama, atau bahkan lebih besar?
